@@ -1,1 +1,0 @@
-# aureaeducacao.github.io
